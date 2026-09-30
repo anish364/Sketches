@@ -1,0 +1,1 @@
+This folder includes most of the sketches, digital art and paintings i could selvedge from my works, i hope you like it:)
